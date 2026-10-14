@@ -1,4 +1,4 @@
-[Logo de Sara SánchezSara Sánchez](#inicio)
+[Logo de Sara Sánchez Cañola](#inicio)
 
 - [Sobre mí](#sobre-mi)
 - [Habilidades](#habilidades)
